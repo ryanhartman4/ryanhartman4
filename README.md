@@ -4,7 +4,6 @@
 - Most of my Repo are private, so if you are here to see some of my project work feel free to shoot me an email so I can add you as a collaborator!
 - I am currently busy working on a few personal projects; However, if any one needs an extra set of hands on a project, I am always happy to help out.
 - 📫 How to reach me: 
-Student email: ryan.t.hartman@pepperdine.edu
 Personal email: ryan.h4rtman@gmail.com or ryan.hartman@me.com
 
 
